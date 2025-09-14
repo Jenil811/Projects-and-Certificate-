@@ -1,2 +1,2 @@
 # Projects-and-Certificate-
-this is my all projects nad certificate
+this is my all projects nad certificate.
